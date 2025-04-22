@@ -1,0 +1,13 @@
+Das Jahr ist 26XX…
+
+Die Menschheit hat vor Jahrhunderten den Sprung ins All geschafft und die Geheimnisse der Wurmlöcher und Hyperraumrouten gelüftet. Heute gleiten Tag für Tag zahllose Schiffe durch jene durchlässigen Tore und verbinden weit entfernte Sternensysteme in wenigen Tagen oder Wochen. Doch obwohl sich die Grenzen der Erde weiteten, wuchsen zugleich die Gräben zwischen den Menschen.
+
+In den schillernden orbitalen Megastädten regiert ein Luxus, der in grellen Neonlichtern erstrahlt – hier fließen unvorstellbare Summen durch die Hände derer, die sich die einflussreichen Positionen bei Konzernen und Regierungsinstanzen gesichert haben. High-Tech-Implantate, aufwendige Roboterlösungen und unerschöpfliche Energiequellen machen den Alltag der Eliten zum gläsernen Traum vom Fortschritt.
+
+Doch nur wenige Systeme weiter, in heruntergekommenen Kolonien und vergessen wirkenden Minenstationen, herrschen Hunger, Verzweiflung und Perspektivlosigkeit. Abseits der vielbefahrenen Handelsrouten müssen sich die Menschen in rostigen Habitaten durchschlagen, wo jeder Tag zum Überlebenskampf wird. Ein einziger Fehltritt, und schon droht das Leben, das man sich mühsam aufgebaut hat, wie eine Seifenblase zu zerplatzen.
+
+Zwischen diesen Extremen steht der begehrte Rohstoff namens Eternar: ein seltener Kristall, dessen fraktale Struktur gewaltige Energiemengen speichern und nahezu verlustfrei weiterleiten kann. Für die Einen verspricht Eternar grenzenlosen Profit, für die Anderen könnte es der Schlüssel sein, den Ausbruch aus ihrer trostlosen Existenz zu schaffen – oder sie endgültig in den Würgegriff mächtiger Syndikate führen. Überall, wo Eternar vorkommt oder gehandelt wird, folgt ein gefährliches Tauziehen zwischen skrupellosen Unternehmern, autoritären Regierungen und verzweifelten Kleinanbietern, die alle um jeden Splitter dieses kristallinen Schlüssels zur Macht ringen.
+
+Roboter und Künstliche Intelligenzen bestimmen das Alltagsbild: In den Metropolen übernehmen sie Verwaltung, Forschung und Luxusbedienung, während sie in den Randwelten eher als langlebige Arbeitsmaschinen eingesetzt werden. Trotz ihrer Effizienz wächst mit jeder neuen Innovation die Furcht vor dem Tag, an dem die Schöpfung ihren Schöpfern über den Kopf wächst.
+
+Ihr beginnt euer Abenteuer in dieser zerrütteten Galaxis. Während ihr hinauszieht, um eure Spuren in den Weiten des Alls zu hinterlassen, spürt ihr den Sog der Mächtigen wie eine Glut im Nacken. Wer sich nicht anpasst, wird verschluckt – doch vielleicht findet ihr ein Schlupfloch, um euer eigenes Schicksal in die Hand zu nehmen.
